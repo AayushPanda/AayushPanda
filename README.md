@@ -1,3 +1,3 @@
 
 
-Resume: https://aayushpanda.github.io/resume_aayush_panda.pdf
+Resume: https://aayushpanda.com/resume_aayush_panda.pdf
